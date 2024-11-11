@@ -1,0 +1,2 @@
+# info-u.e.-tunas-vinto-sis-inf.github.io
+ESTA ES UNA PAGINA WEB INFORMATIVA SOBRE LA UNIDAD EDUCATIVA TUNAS VINTO 2023
